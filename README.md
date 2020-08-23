@@ -1,3 +1,3 @@
 # websinkwastaken.github.io
-my fucking webwsite 
-fuck github it is so fucking stupsjid
+my website
+edited this because it was excessively rude for some reason
